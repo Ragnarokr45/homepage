@@ -1,2 +1,2 @@
 # Homepage
-The resume of 45th president of USA known also as genius billionaire playboy philanthropist!
+My very own personal website. Basically this is just a résumé.
